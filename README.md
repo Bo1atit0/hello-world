@@ -9,4 +9,4 @@ I am a
 My favourite foods are
 1. Rice
 2. Shawarma
-3. Amala
+3. Amalaa
